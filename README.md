@@ -1,2 +1,2 @@
 Hi 👋
-I am Amartya Kumar.
+I am Amartya Kumar(a Hu-MAN.
